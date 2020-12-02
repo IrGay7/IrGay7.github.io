@@ -1,1 +1,1 @@
- IrGay7.io
+ IrGay7.github.io
